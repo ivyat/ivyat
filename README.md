@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ivyat
+- 👀 I’m interested in painting, music, sports, programming
+- 🌱 I’m currently learning at a software development university studying software engeneering
+- 📫 How to reach me: call.me.ivy.2000@gmail.com
